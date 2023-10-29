@@ -1,3 +1,3 @@
 - 👋Hello, everyone!! My Name is Shreyansh Jain
-- 🙂I am happy share github profile with you
-- 👍🏻Thanks for visiting!!
+- 🙂I am Happy to share my Github profile with You
+- 👍🏻Thanks for Visiting!!
